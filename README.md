@@ -8,4 +8,7 @@ im Jahre 2002
 Hochschulreife in einem TG - _Zug Mechatronik gemacht 2021_
 
 ##Hobbys
-Großer Film Mensch, aber auch gerne in der Natur
+Großer Film Mensch, aber auch gerne in der Natur unterwegs
+
+I edited this file a bit, 
+best regards Julian.
